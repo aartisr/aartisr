@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Aarti Sri Ravikumar
 - 👀 I’m interested in providing Simplistic Solutions
 - 🌱 I’m currently learning Programming
-- 💞️ I’m looking to collaborate on Healing App
+- 💞️ I’m looking to collaborate on an Healing App
 - 📫 How to reach me - Will let you know ;-)
 - 😄 Pronouns: ... SHE
 - ⚡ Fun fact: ... "My Philosophy is exploring the paths from 0 -> infinity -> 0. Meaning to say Zero to Infinity and Back ( x approaches infinity and back ). I feel the path TO infinity is not the same as path BACK TO zero and needs to be explored"
