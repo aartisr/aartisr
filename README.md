@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on an Healing App
 - 📫 How to reach me - Will let you know ;-)
 - 😄 Pronouns: ... SHE
-- ⚡ Fun fact: ... "My Philosophy is exploring the path(s) from 0 -> infinity -> 0. Meaning to say Zero to Infinity and Back ( x approaches infinity and back ). I feel the path TO infinity is not the same as path BACK TO zero and needs to be explored"
+- ⚡ Fun fact: ... "My Philosophy is exploring the path(s) from 0 -> infinity -> 0. Zero to Infinity and Back. Path TO infinity is NOT the same as BACK TO zero and needs to be explored"
 
 <!---
 aartisr/aartisr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
