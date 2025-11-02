@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on an Awesome Healing App (AHA)
 - 📫 How to reach me - Will let you know ;-)
 - 😄 Pronouns: ... SHE
-- ⚡ Fun fact: ... "My PCSSII Paradox" Exploring 0 <-> infinity. Zero to Infinity and Back. The Path TO infinity [CREATION/EXPANSION] is NOT the same as BACK TO zero [DISSOLUTION/CONTRACTION], and needs Exploration.
+- ⚡ Fun fact: ... "My PCSSII Paradox" Exploring 0 <-> infinity. Zero to Infinity and Back. The Path TO infinity [CREATION/EXPANSION] is NOT the same as BACK TO zero [DISSOLUTION/CONTRACTION], and needs Exploration. Think beyond Differentiation and Integration.
 
 <!---
 aartisr/aartisr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
