@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on an Awesome Healing App (AHA)
 - 📫 How to reach me - Will let you know ;-)
 - 😄 Pronouns: ... SHE
-- ⚡ Fun fact: ... "My PCSS-II Paradox" Exploring 0 <-> infinity. Zero to Infinity and Back. The Path TO infinity [CREATION/EXPANSION] is NOT the same as BACK TO zero [DISSOLUTION/CONTRACTION], and needs Exploration. Think beyond Differentiation and Integration. Can Math express feelings, emotions and experiences?? Why not??
+- ⚡ Fun fact: ... "My PCSS-II Paradox" Exploring 0 <-> infinity. Zero to Infinity and Back. The Path TO infinity [CREATION/EXPANSION] is NOT the same as BACK TO zero [DISSOLUTION/CONTRACTION], and needs Exploration. Think beyond Differentiation and Integration. Can Math express mind, its thoughts, feelings, emotions and experiences?? Why not??
 
 <!---
 aartisr/aartisr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
