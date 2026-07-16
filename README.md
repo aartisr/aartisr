@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Aarti Sri Ravikumar
 - 👀 I’m interested in providing Simplistic Solutions
-- 🌱 I’m currently learning Programming and Witnessing Life
+- 🌱 I’m currently Xforming energy - learning Programming and Witnessing Life
 - 💞️ I’m looking to collaborate on an Awesome Healing App (AHA)
 - 📫 How to reach me - Will let you know ;-)
 - 😄 Pronouns: ... SHE
