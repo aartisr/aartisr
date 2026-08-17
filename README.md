@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Aarti Sri Ravikumar - Student and Social Entrepreneur (Sociopreneur)
+- 👋 Hi, I’m Aarti Sri Ravikumar - Student and Social Entrepreneur (Socio-preneur)
 - 👀 I’m interested in providing Simplistic Solutions
 - 🌱 I’m currently Xforming energy - learning Programming and Witnessing Life
 - 💞️ I’m looking to collaborate on an Awesome Healing App (AHA)
